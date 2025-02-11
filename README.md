@@ -1,2 +1,14 @@
-# qq_frontend
-frontend of the best messenger 
+# qq
+# the best messenger ever
+
+
+# it is the most secure open source messenger!
+
+
+# without bans!
+
+
+# no censorship!
+
+
+# no rules!
